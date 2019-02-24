@@ -1,4 +1,4 @@
 # huhn
 UNSER OFFIZIELLER TWITTER ACCOUNT:
   RGB-Gamers
-  Passwort: Minecraft
+  Passwort: minecraft2
